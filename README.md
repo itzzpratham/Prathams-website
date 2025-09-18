@@ -1,2 +1,2 @@
 # Prathams-website
-![img_alt](C:\Users\Bca1\Pictures)
+![image alt]("C:\Users\Bca1\Pictures\download.jpg")
