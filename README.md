@@ -1,2 +1,2 @@
 # Prathams-website
-![image alt]("C:\Users\Bca1\Pictures")
+![image alt]("https://www.google.com/imgres?q=clock%20images&imgurl=https%3A%2F%2Fwww.titan.co.in%2Fdw%2Fimage%2Fv2%2FBKDD_PRD%2Fon%2Fdemandware.static%2F-%2FSites-titan-master-catalog%2Fdefault%2Fdw6ef4a954%2Fimages%2FTitan%2FCatalog%2FW0046PA01_1.jpg%3Fsw%3D600%26sh%3D600&imgrefurl=https%3A%2F%2Fwww.titan.co.in%2Fproduct%2Ftitan-contemporary-wooden-finish-white-wall-clock-with-thermometer-and-hygrometer---30-cm-x-30-cm-w0046pa01.html%3Fsrsltid%3DAfmBOopyBiqtvrpK3cFEFtwRvVGARCKCF2uA-aO7FMJpXHaR2I1x4qDJ&docid=_4-fEE3nhKao3M&tbnid=n_T77OzxRJHNeM&vet=12ahUKEwjmkJOg2-GPAxXl1jgGHVMOLU8QM3oECCMQAA..i&w=600&h=600&hcb=2&ved=2ahUKEwjmkJOg2-GPAxXl1jgGHVMOLU8QM3oECCMQAA")
